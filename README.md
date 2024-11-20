@@ -19,7 +19,7 @@ Sou uma pessoa dedicada, com boa capacidade de resolução de problemas e sempre
 Você pode me encontrar por aqui: ⤵️
 
 [![Gmail](https://img.shields.io/badge/Gmail-D14836?style=for-the-badge&logo=gmail&logoColor=white)](mailto:flaviano202014@gmail.com)
-[![Linkedin](https://img.shields.io/badge/LinkedIn-0077B5?style=for-the-badge&logo=linkedin&logoColor=white)](www.linkedin.com/in/flaviano-bezerra-5203bb333)
+[![Linkedin](https://img.shields.io/badge/LinkedIn-0077B5?style=for-the-badge&logo=linkedin&logoColor=white)](https://www.linkedin.com/in/flaviano-bezerra-5203bb333)
 [![Instagram](https://img.shields.io/badge/Instagram-E4405F?style=for-the-badge&logo=instagram&logoColor=white)](https://www.instagram.com/lavinho.silva.792?igsh=ZnZnaGRpOWs1eDN2)
 
 <div align= "center">
